@@ -1,4 +1,4 @@
-#  
+#  aura ascension Scripts secure is the best aura ascension Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
